@@ -4,7 +4,7 @@
 Junior Frontend Developer
 
 ## Contact information:
-**Phone:** +375 44 792 60 31
+**Phone:** +375 44 792 60 31, +48 884 905 669
 
 **E-mail:** valer.novogran@gmail.com
 
